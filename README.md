@@ -42,8 +42,8 @@ I play guitar and ukulele—sometimes both at once (well, almost)! 🎶
 
 ## 📫 Connect With Me
 
-- [Facebook](https://facebook.com/yourusername)  
-- [Instagram](https://instagram.com/yourusername)
+- [Facebook](https://www.facebook.com/zios.bugos)  
+- [Instagram](https://www.instagram.com/zai_use/)
 
 *Feel free to reach out, share ideas, or just say hi!*
 
