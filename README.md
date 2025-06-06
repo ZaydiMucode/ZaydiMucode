@@ -1,4 +1,4 @@
-# Hi there, I'm ZaydiMucode! 👋
+# Hi there, I'm Zay! 👋
 
 Welcome to my GitHub profile!  
 I'm a 2nd year student at **Southern Leyte State University**, coding my way through life and learning new things every day.
