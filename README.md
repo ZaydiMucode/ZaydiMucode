@@ -1,7 +1,7 @@
 # Hi there, I'm Zay! 👋
 
 Welcome to my GitHub profile!  
-I'm a 3nd year student at **Southern Leyte State University**, coding my way through life and learning new things every day.
+I'm a 3rd year student at **Southern Leyte State University**, coding my way through life and learning new things every day.
 
 ---
 
